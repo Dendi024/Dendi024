@@ -2,7 +2,7 @@
 - 👀 I’m interested in crypto
 - 🌱 I’m currently learning fokus
 - 💞️ I’m looking to collaborate on airdrop
-- 📫 How to reach me yes
+- 📫 How to reach me wa bae
 - 😄 Pronouns:yes
 - ⚡ Fun fact:speed
 
