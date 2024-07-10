@@ -2,9 +2,9 @@
 - 👀 I’m interested in crypto
 - 🌱 I’m currently learning fokus
 - 💞️ I’m looking to collaborate on airdrop
-- 📫 How to reach me ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- 📫 How to reach me yes
+- 😄 Pronouns:yes
+- ⚡ Fun fact:speed
 
 <!---
 Dendi024/Dendi024 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
